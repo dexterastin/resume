@@ -1,3 +1,1 @@
-# resume
-## Please make corrections or comments on my resume.
-edit : https://abit.ly/isclb1
+https://abit.ly/resume
